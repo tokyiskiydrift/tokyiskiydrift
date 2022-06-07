@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tokyiskiydrift
+- 👀 I’m interested in Earth
+- 🌱 I’m currently learning Analysis and Plants
+- 💞️ I’m looking to collaborate on Andromed
